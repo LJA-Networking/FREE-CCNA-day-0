@@ -1,1 +1,0 @@
-# FREE-CCNA-day-0
